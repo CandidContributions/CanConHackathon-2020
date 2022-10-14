@@ -34,6 +34,7 @@ Attendees:
 - [Alianna Flynn](https://twitter.com/AliannaFlynn)
 - [Poornima Nayar :-)](https://twitter.com/PoornimaNayar)
 - [Rachel Breeze](https://twitter.com/BreezeRachel)
+- Manoj K Joshi
 # Wish you were here!
 If you can't make it but want to add youself to the guest book, add here!💜
 
