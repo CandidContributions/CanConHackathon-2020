@@ -1,4 +1,4 @@
-# CanConHackathon Guestbook (Easter 2020)
+# CanConHackathon Guestbook (April 2020)
 
 If you are attending the Virtual Hackathon, or can't but _wish_ you were intending the hackathon ... then please sign our guest book!
 
